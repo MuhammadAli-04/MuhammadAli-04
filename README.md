@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **muhammadali427336@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://shorturl.at/mqRW7)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1UpJIi9nSyhaonOMfw_mbErYs1JKdQSt3/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
